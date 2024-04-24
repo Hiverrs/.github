@@ -1,1 +1,1 @@
-# .github
+# JOIN THE HIVE
